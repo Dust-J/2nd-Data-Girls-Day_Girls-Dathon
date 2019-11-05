@@ -1,1 +1,2 @@
-# 2nd-Data-Girls-Day_Girls-Dathon
+# 2nd Data Girl's Day : Girl's Dathon
+http://odf.or.kr/boards/357
